@@ -1,4 +1,4 @@
-¡¡¡Bienvenidos!!! 👦🤩 Mi nombre es Alejandro estoy escribiendo estas palabras luego de enseñar y generar un impacto en tantas vidas. Porfavor lean hasta el final, trataré ¡trataré de no aburrirlos!
+¡¡¡Bienvenidos!!! 👦🤩 Mi nombre es Alejandro estoy escribiendo estas palabras luego de enseñar y generar un impacto en tantas vidas. Porfavor lean hasta el final, ¡trataré de no aburrirlos!
 
 /* 1 parrafo corregido*/
 
