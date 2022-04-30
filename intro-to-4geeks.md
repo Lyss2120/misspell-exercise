@@ -1,10 +1,6 @@
-¡¡Bienbenidos!! 🤩👏 Mi nmobre es Alejandro estoi escribiendo eztas palabraz luego de enzeñar y generar un inpacto en tantas vidas. Por fabor lean hazta el final, ¡trataré de no avurrirlos!
+testeo
 
-## Lo que ya saves
 
-Estas aquí para apremder a dezarrollar tus avilidades para progranar hasta un nivel en el puedas: 1️⃣ Comseguir trabajo, 2️⃣ Crear tu propia empresa y/o 3️⃣ Adaptarte mejor al nuevo mumdo. 
-
-## Lo que ya sabías
 
 Tambiém estas aquí porque necesitas alluda, no sólo técnica sino tanbién espiritual. Digo esto de la manera más pragmática poisble.
 
