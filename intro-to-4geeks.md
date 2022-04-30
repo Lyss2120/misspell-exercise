@@ -1,4 +1,6 @@
-¡¡Bienbenidos!! 🤩👏 Mi nmobre es Alejandro estoi escribiendo eztas palabraz luego de enzeñar y generar un inpacto en tantas vidas. Por fabor lean hazta el final, ¡trataré de no avurrirlos!
+¡¡¡Bienvenidos!!! 👦🤩 Mi nombre es Alejandro estoy escribiendo estas palabras luego de enseñar y generar un impacto en tantas vidas. Porfavor lean hasta el final, trataré ¡trataré de no aburrirlos!
+
+/* 1 parrafo corregido*/
 
 ## Lo que ya zaves
 
