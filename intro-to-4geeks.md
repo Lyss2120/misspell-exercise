@@ -1,4 +1,5 @@
-¡¡Bienbenidos!! 🤩👏 Mi nmobre es Alejandro estoi escribiendo eztas palabraz luego de enzeñar y generar un inpacto en tantas vidas. Por fabor lean hazta el final, ¡trataré de no avurrirlos!
+
+ ¡¡Bienvenidos!! Mi Nombre es Alejandro estoy
 
 ## Lo que ya zaves
 
