@@ -1,3 +1,4 @@
+
 ¡¡Bienvenidos!! 🤩👏 Mi nombre es Alejandro estoy escribiendo estas palabras luego de enseñar y generar un impacto en tantas vidas. Por favor lean hasta el final, ¡trataré de no aburrirlos!
 
 ## Lo que ya sabes
@@ -5,6 +6,11 @@
 Estas aquí para aprender a desarrollar tus habilidades para programar hasta un nivel en el que puedas: 1️⃣ Conseguir trabajo, 2️⃣ Crear tu propia empresa y/o 3️⃣ Adaptarte mejor al nuevo mumdo. 
 
 ## Lo que ya sabías
+
+testeo
+
+
+
 
 También estas aquí porque necesitas ayuda, no sólo técnica sino también espiritual. Digo esto de la manera más pragmática posible.
 
